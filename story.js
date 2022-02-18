@@ -1,0 +1,2 @@
+**story**
+Once upon a time, in a forest, there lived a monkey. This monkey lived in a berry tree. The tree resided next to a river. In the same forest, a crocodile and his wife lived. One day, the crocodile came back from work. He decided to rest in the shade of a tree. The kind monkey, seeing the crocodile tired out, decied to offer him some fresh fruits. The crocodile took the fruits and enjoyed them. The next day, the crocodile came back for more fruits from the monkey. 
